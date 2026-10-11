@@ -157,7 +157,7 @@ St.Joseph's college of engineering
 
 ### Team Members
 - Team Leader — SUDHAKAR T K
-- Member 2 — THARUN BALAJI
+- Member 2 — THARUN B
 - Member 3 — Thilakan S
 - Member 4 — Yogavel D
 
